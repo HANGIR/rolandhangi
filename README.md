@@ -1,2 +1,2 @@
-# rolandhangi
-New developer to become
+# Rolandhangi
+New Developer to Become
